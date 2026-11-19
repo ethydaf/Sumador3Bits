@@ -1,11 +1,11 @@
 ## How it works
 
-IDK, you better search for something else
+IDK, you better search for something elsede, djenolde, delfmneie, ekfbenike, jsbwbdjn, jfoejojcejne
 
 ## How to test
 
-IDK
+IDK jedjjn jnejijce mdidjed jkfefjjife imi4jf jnj3dnu mfiklwnf imdijf4j m4orrovm
 
 ## External hardware
-IDK
+IDK, junedief djnefe comoortmdne,meijfijekmdekd
 
