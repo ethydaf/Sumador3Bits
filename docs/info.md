@@ -8,10 +8,11 @@ You can also include images in this folder and reference them in the markdown. E
 -->
 
 ## How it works
-IDK, my teacher is explaining it.
+IDK, you better search for something else
 
 ## How to test
-Prob. Using Wokwi
+IDK
 
 ## External hardware
-Only lil things
+IDK
+
